@@ -1,0 +1,3 @@
+to get hired :
+companies check 3 important things (branch, rank and CPI)
+etc etc ...
